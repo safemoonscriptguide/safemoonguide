@@ -6,4 +6,6 @@ Here you can find the complete guide for the Safemoon clone script 2021. Thanks 
 
 https://safemoonscriptguide.sitelio.me/
 
+https://safemoonscript.blogspot.com/
+
 Download totally free!
